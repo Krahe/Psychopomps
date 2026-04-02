@@ -1,0 +1,1 @@
+PSYCHOPOMPS is a line of premium weighted adult sleeping companions modeled after charismatic megafauna. Featuring an outer washable shell, internal baffled compartments filled with glass microbeads and large enough to comfortably provide grounding pressure to adult-sized bodies.
